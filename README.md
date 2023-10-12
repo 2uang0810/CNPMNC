@@ -1,1 +1,1 @@
-Trả lời : 1 + mấy = bao nhiêu :D
+Tôi có đẹp trai hong :D
