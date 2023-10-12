@@ -1,1 +1,1 @@
-Hãy trả lời : 1 + mấy = bao nhiêu :D
+Trả lời : 1 + mấy = bao nhiêu :D
